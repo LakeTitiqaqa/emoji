@@ -8,8 +8,11 @@ My fav emojis
 🥬🌶️🧄🍎🧂🌶️🥕🍜 🫐 🍍 🍊 
 ❎ 
 :positive
+☑️
 
 ⭕ 
 ❌
 
 ❓
+🧠
+✅
