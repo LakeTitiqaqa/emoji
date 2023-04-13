@@ -6,3 +6,10 @@ My fav emojis
 🥛 
 🍉
 🥬🌶️🧄🍎🧂🌶️🥕🍜 🫐 🍍 🍊 
+❎ 
+:positive
+
+⭕ 
+❌
+
+❓
